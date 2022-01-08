@@ -1,2 +1,0 @@
-## Welcome to RAINIER NFT
-
